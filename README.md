@@ -5,7 +5,7 @@
 
 17 . Y̠O̠,,(( ☎ )) . JAN 2 0 ·˚ ༘₊· ͟͟͞͞꒰ || 🚬 
 ![image](https://file.garden/aMmjaEv__W40b9_V/Untitled770_20251003212157.png)
-↻﹋====== AMBIVERTED ======﹋�
+↻﹋AMBIVERTED
 
 ╰┈➤𓂃𓂃𓂃 TYPQ ;; 📞 0CASSIONALLY, 1LL T4LK LIKE [number1bestsalesman]
 
