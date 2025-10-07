@@ -14,3 +14,6 @@
 ╰ᕤ SO EXP3CT [Grammar And Spelling] M1STAKES!!!!! [[🗞]]﹉﹉﹉ᕦ
 
 ![image](https://file.garden/aMmjaEv__W40b9_V/Untitled770_20251003215137.png) 
+I love my gf
+
+we are literally spamtenna trust
